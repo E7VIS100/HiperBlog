@@ -1,2 +1,2 @@
 # HyperBlog
-Creado en el curso de PLTZ :)
+Created in the best course in the world!!!!
